@@ -1,0 +1,1 @@
+# GOMAx-token
